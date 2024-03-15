@@ -1,5 +1,6 @@
 
-![sansanbg](https://github.com/warbon-san/warbon-san/assets/156647658/1c44d76a-5efe-4b8f-8465-0b4d38ec8fd7)
+
+![sansanbg](https://github.com/warbon-san/warbon-san/assets/156647658/82a6a61b-8e1c-468e-b9a8-058d686a02a0)
 
 
 ### Hi there 👋
